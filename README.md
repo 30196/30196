@@ -1,11 +1,13 @@
-# Hi 👋, I'm 30196
+Hi 👋, I'm 30196
 
-### AAA
+ About me
 
 Welcome to my personal homepage. Anyway, this is my hasty self-introduction. You might think my English is a mess, but please forgive me because English is not my first language**
 
    My first language is Chinese and when I'm online, I'm usually AFK (away from keyboard) I don't like people copying my pony character design.
-
+   
+   I am asexual and non-binary
+   
 C+H – but if there's nothing else, please don't talk to me. If you do want to talk, please send a private message, because my language level is too low – I easily can't understand what you're saying, and I might use a translator
 
 I don't care about controversies because I can't understand them. Even if you insult me, I won't get it. Be cautious when chatting with me – I'm very timid and I have social anxiety 
@@ -14,7 +16,9 @@ I don't care about controversies because I can't understand them. Even if you in
 
 Usually, the person sitting next to me is just my own alt account
 
+更适合中国人胃口的自我介绍：
 
+可以和我随便贴，但是我分情况社恐，而且我话废。
 
 
 
