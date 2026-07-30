@@ -6,13 +6,13 @@ Welcome to my personal homepage. Anyway, this is my hasty self-introduction. You
 
    My first language is Chinese and when I'm online, I'm usually AFK (away from keyboard) I don't like people copying my pony character design.
 
-I don't care about controversies because I can't understand them. Even if you insult me, I won't get it. Be cautious when chatting with me – I'm very timid and I have social anxiety**
+I don't care about controversies because I can't understand them. Even if you insult me, I won't get it. Be cautious when chatting with me – I'm very timid and I have social anxiety C+H – but if there's nothing else, please don't talk to me. If you do want to talk, please send a private message, because my language level is too low – I easily can't understand what you're saying, and I might use a translator
 
- **i like dirk strider and dave strider I'm not into shipping them romantically (like sibling incestpairings) I lean more toward a friendship-type relationship between them **
+ i like dirk strider and dave strider I'm not into shipping them romantically (like sibling incestpairings) I lean more toward a friendship-type relationship between them **
 
 Usually, the person sitting next to me is just my own alt account
 
-C+H – but if there's nothing else, please don't talk to me. If you do want to talk, please send a private message, because my language level is too low – I easily can't understand what you're saying, and I might use a translator
+
 
 
 
