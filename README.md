@@ -8,7 +8,7 @@
 
 **I don't care about controversies because I can't understand them. Even if you insult me, I won't get it. Be cautious when chatting with me – I'm very timid and I have social anxiety**
 
-I'm looking for help with **i like dirk strider and dave strider I'm not into shipping them romantically (like sibling incestpairings) I lean more toward a friendship-type relationship between them **
+ **i like dirk strider and dave strider I'm not into shipping them romantically (like sibling incestpairings) I lean more toward a friendship-type relationship between them **
 
 Usually, the person sitting next to me is just my own alt account**
 
